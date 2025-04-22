@@ -1,4 +1,4 @@
-# :sparkles::sparkles:绿巨人APP发布页:sparkles::sparkles:
+# :sparkles::sparkles:绿巨人APP最新发布页:sparkles::sparkles:
 
  :heart: :point_right: 【最新地址1】 ：https://lvjurenappa.pages.dev   （点击打开，看完记得收藏)
  ------
